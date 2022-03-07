@@ -1,0 +1,2 @@
+- 👋 Hi, This is Swarnamanjari. I'm on my way to become "The Data scientist!" 
+- Most welcome to join me in the journey!!
